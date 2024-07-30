@@ -1,4 +1,4 @@
-Hello, Welcome to great leaders from Gokarna and Mangaluru
+Hello, Welcome to great leaders from Bangalore and Tumkur
 
 
 
